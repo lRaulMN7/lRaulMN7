@@ -1,6 +1,6 @@
 ## meow 🐱
 
-My name is Raúl! I'm a 26 yo software engineer.
+My name is Raúl! I'm a 27 yo software engineer.
 
 When I'm not coding, I love listening to and playing music, crying over golden sun 4 (make it already!!!!!) and trying to find my purpose on life :D
 
